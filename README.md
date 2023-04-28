@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Currently developing Fleet Coffee's mobile and web applications<br>👯 Actively seeking new opportunities to grow and contribute<br>💬 Feel free to ask me about anything – no topic is off-limits!<br>⚡ Fun fact: I'm in training for the Toronto Triathlon Festival's Olympic 2023 distance race, featuring a 1.5 km swim, 40 km bike ride, and 10 km run. Despite being a novice swimmer, I'm determined to conquer this challenge – wish me luck!
+🔭 Currently developing Fleet Coffee's mobile and web applications<br>👯 Actively seeking new opportunities to grow and contribute<br>💬 Feel free to ask me about anything – no topic is off-limits!<br>⚡ Fun fact: I'm in training for the Toronto Triathlon Festival's Olympic distance race, featuring a 1.5 km swim, 40 km bike ride, and 10 km run. Despite being a novice swimmer, I'm determined to conquer this challenge – wish me luck!
 
 
 ## 🌐 Socials:
